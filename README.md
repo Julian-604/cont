@@ -80,9 +80,6 @@ Phone +91 94944 99465
 Bhargavi goparaju
 Phone +91 99893 81145
 
-Bhumika
-Phone +91 91829 82316
-63037 91193
 
 Book
 Phone 96665 71474
@@ -148,11 +145,6 @@ Phone +91 91827 37305
 Hari
 Phone 96769 45154
 
-Harish
-Phone +91 63090 09386
-
-Haritha
-Phone +91 93903 47247
 
 Harshvardhan
 Phone +91 79 9755 2331
@@ -164,10 +156,7 @@ Phone 82976 72956
 Hemanth
 Phone +91 93812 60442
 
-Hod Sir
-Phone 77807 26746
-Hostal
-Phone +91 80965 90999
+
 
 jany
 Phone 9182785732
@@ -216,17 +205,7 @@ madhu
 Phone 84650 15193
 Madhu Sir
 Phone 9966657232
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
+
 09/02/2023, 19:42 Google Contacts
 https://contacts.google.com/u/1/?pageId=none 7/16
 mahesh
@@ -255,20 +234,7 @@ Phone 99123 80948
 79895 95997
 Nagesh(jr)
 Phone +91 93478 93486
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
+
 09/02/2023, 19:42 Google Contacts
 https://contacts.google.com/u/1/?pageId=none 8/16
 Nagulmeera
@@ -276,13 +242,7 @@ Phone 81848 83717
 Naveen
 Phone 96406 74884
 964-067-4884
-Navya
-Phone 90108 14429
-901-081-4429
-navya.gundapuneni.1997@gmail.com
-Email navya.gundapuneni.1997@gmail.com
-Navya1
-Phone +91 91216 58316
+
 Neeraj
 Phone +91 63019 22878
 Nikhil
@@ -298,20 +258,7 @@ Phone +91 70365 68460
 Pavan ❤❤jio
 Phone +91 63098 77302
 +91 93815 64097
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
+
 09/02/2023, 19:42 Google Contacts
 https://contacts.google.com/u/1/?pageId=none 9/16
 Pavan Mrec
@@ -338,18 +285,7 @@ Raju Bhai
 Phone +916303478087
 Raju Mrec
 Phone +91 63022 74253
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
+
 • Mobile
 09/02/2023, 19:42 Google Contacts
 https://contacts.google.com/u/1/?pageId=none 10/16
@@ -378,20 +314,7 @@ S.k.Ranthi
 Phone 89786 63531
 S K.Ranthi 2
 Phone +91 88971 44576
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
+
 09/02/2023, 19:42 Google Contacts
 https://contacts.google.com/u/1/?pageId=none 11/16
 S:°°)
@@ -420,21 +343,7 @@ Sanjay
 Phone 95507 01477
 Santosh
 Phone +91 99083 67929
-• Mobile
-• Mobile
-• Work
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
+
 09/02/2023, 19:42 Google Contacts
 https://contacts.google.com/u/1/?pageId=none 12/16
 Sathipandu
@@ -462,17 +371,7 @@ Sudharshan Rao
 Phone 79812 87957
 Suriya
 Phone +91 95155 10000
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
+
 09/02/2023, 19:42 Google Contacts
 https://contacts.google.com/u/1/?pageId=none 13/16
 Takshudi
@@ -499,18 +398,7 @@ Uma
 Phone +91 80081 77290
 Uma Akka
 Phone 9963596486
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Work
-• Mobile
-• Main
-• Mobile
-• Mobile
+
 09/02/2023, 19:42 Google Contacts
 https://contacts.google.com/u/1/?pageId=none 14/16
 Vamsh B
@@ -528,41 +416,18 @@ Phone 9618655404
 961-865-5404
 Vamshi Mrec
 Phone +91 95538 32580
-Vamshi Sir
-Phone 85550 08019
+
 Veerababu Kpm
 Phone 7661040713
 76610 40713
 Veerababu Kpm 2
 Phone +917330807131
-Saikumar Gundapuneni
-velama
-Email saikumargundapuneni99@gmail.com
-blee76075@gmail.com
-saikumargundapuneni
+
 Phone 938-179-4108
 Venkatesh
 Phone +91 85229 05021
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Work
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Work
-• Home
-• Mobile
-• Mobile
-09/02/2023, 19:42 Google Contacts
-https://contacts.google.com/u/1/?pageId=none 15/16
+
+
 Venkatesh B
 Phone +91 96529 71654
 Vikas
@@ -588,25 +453,8 @@ Email vishnuvardhanreddygayapu@gmail.com
 Vpg
 Phone 70756 57275
 707-565-7275
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-09/02/2023, 19:42 Google Contacts
-https://contacts.google.com/u/1/?pageId=none 16/16
-Wi Fi
-Phone +918309348383
-Wifi
-Phone 9949899934
+
+
 Yashwanth
 Phone 6300 488 238
 630-048-8238
@@ -614,10 +462,5 @@ Yashwanth1
 Phone 9948878815
 Yogi
 Phone 97054 26027
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
-• Mobile
+
 ```
